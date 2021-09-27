@@ -41,6 +41,8 @@ Take：[https://t.me/iostakeapp](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%
 
 Mume VPN：[https://t.me/mumevpn](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fmumevpn)
 
+Swarm VPN：[https://t.me/beevpn](https://uaoyxzpc.xyz/signup/?c=137032)
+
 Mume Red：[https://t.me/joinchat/AN1ErERd_T7OozpWs3rACA](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fjoinchat%2FAN1ErERd_T7OozpWs3rACA)
 
 VPN讨论群：[https://t.me/gouwu](https://link.jianshu.com/?t=https%3A%2F%2Ft.me%2Fgouwu)
